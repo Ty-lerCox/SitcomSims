@@ -1,4 +1,4 @@
-**Interactive Sitcom Experience Master Plan Part 1**
+**Interactive Sitcom Experience Master Plan: Part 1**
 
 ---
 
